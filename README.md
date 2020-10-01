@@ -1,2 +1,1 @@
-# scenic-photos
-A Collection of Pictures
+# Beautiful Locations Captured in A Second
