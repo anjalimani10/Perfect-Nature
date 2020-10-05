@@ -1,4 +1,4 @@
-  1qAZ    
+ 
 ## Sunset & Landscape Pictures-
 1. Griffith Observatory 
 - Griffith Park is a well-known tourist attraction located in Los Angeles, California. Here, I was able to take stunning pictures of the sunset and the famous "Hollywood" sign while waiting in line for the Griffith Observatory with my family. These picures were all caputured minutes after each other, and they really capture the hidden beauty of Earth. I recommend that you visit this location not just for the view, but also to learn more about our solar system and see the planets and stars it consists of. 
